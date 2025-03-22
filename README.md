@@ -1,4 +1,4 @@
-### **GitHub Project Description for "Revolutionizing Student Education with AI-Generated Video Content"**  
+
 
 ---
 
